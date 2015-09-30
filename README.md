@@ -1,4 +1,4 @@
-# Nehody chodců
+# Nehody cyklistů pod vlivem
 
 [Článek na Rozhlas.cz](http://www.rozhlas.cz/zpravy/data/_zprava/cyklistu-pod-vlivem-boura-cim-dal-vic-vetsinou-ohrozi-jen-sami-sebe--1537214)
 
